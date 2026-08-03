@@ -1,4 +1,4 @@
-# @ 𝑴𝒊𝒏𝒊 𝒊𝒏𝒇𝒐 𝒂𝒃𝒐𝒖𝒕 𝒎𝒆 
+# @ 𝐀𝐧𝐢𝐦𝐚𝐥 𝐇𝐨𝐬𝐩𝐢𝐭𝐚𝐥 𝐑𝐏 !
 <div align="center">
   <img src="https://64.media.tumblr.com/0702874cb956b9d7f96cbaf16765e00d/2214b4372c2397e2-16/s2048x3072/0f306d5eb0a0ce296c8631f6f55a13f4f3c37ad4.pnj" alt="Profile Image" width="300" />
 </div>
@@ -23,13 +23,11 @@
   
 </div>
 
-
+<div align="center">
 
 ⤷ Please do not ask for supp help if I am busy or AFK. Whether I'm labeled with DNI / OFFTAB / HOSTING. 
 Please know I won't be 
 available at the moment.
-
-⤷ Minors under 14 Iwec ( Interact with extreme caution )
 
 ⤷ DO NOT copy my maps once you encounter or come across my rp; unless given credit 
 and inspiration is very much appreciated.
@@ -44,5 +42,7 @@ suggestive jokes and I'll try to be respectful as possible
 ︵︵︵︵︵︵ 🐾 ︵︵︵︵︵︵
   
 </div>
+
+<div align="center">
 
 ⤷ Homophobes , proshippers, Doxxing , Jokes about :: Pexxophilia and sensitive topics. Ragebaiting for shits and giggles, Liars, and lastly. I do not feel comfortable talking about stuff that involves harassment or excessive NSFW.
