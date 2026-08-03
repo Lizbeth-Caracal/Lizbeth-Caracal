@@ -1,5 +1,9 @@
 # @ 𝑴𝒊𝒏𝒊 𝒊𝒏𝒇𝒐 𝒂𝒃𝒐𝒖𝒕 𝒎𝒆 
 
+<p align="center">
+  <img src="https://komarev.com/ghpvc/?username=Lizbeth-Caracall&color=345BA8&style=flat-square&label=views" width="80">
+</p>
+
 <div align="center">
   <img src="https://64.media.tumblr.com/0702874cb956b9d7f96cbaf16765e00d/2214b4372c2397e2-16/s2048x3072/0f306d5eb0a0ce296c8631f6f55a13f4f3c37ad4.pnj" alt="Profile Image" width="300" />
 </div>
