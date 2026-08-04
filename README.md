@@ -46,3 +46,19 @@ and choose not engage with others. sometimes healthiest thing to do is simply mo
 <div align="center">
 
 ⤷ Homophobes , proshippers, Doxxing , Jokes about :: Pexxophilia and sensitive topics. Ragebait, Liars, and lastly. I do not feel comfortable about stuff that involves harassment or excessive NSFW.
+
+<div align="center">
+  <img src="https://64.media.tumblr.com/0702874cb956b9d7f96cbaf16765e00d/2214b4372c2397e2-16/s2048x3072/0f306d5eb0a0ce296c8631f6f55a13f4f3c37ad4.pnj" alt="Profile Image" width="300" />
+</div>
+
+
+<div align="center">
+  <a href="https://git.io/typing-svg">
+    <img src="https://readme-typing-svg.demolab.com?font=Fira+Code&weight=600&size=16&duration=2000&pause=1000&color=8B5A2B&center=true&width=430&lines=%22+Now+i+need+to+go%2C+see+you+soon...+%22" alt="Typing SVG" />
+  </a>
+</div>
+
+
+<div align="center">
+  <img src="https://media.discordapp.net/attachments/828629705556099102/1534057312371609610/Untitled351_20260804123444.png?ex=6a72bdb4&is=6a716c34&hm=8e559ab923e7e0aa1751e8148abb5c3a8ab3eb0d8cd0a901b5207c70c9e1a9f7&=&format=webp&quality=lossless" alt="Image" width="900" />
+</div>
