@@ -30,8 +30,7 @@ Whether I'm labeled with **DNI / OFFTAB / HOSTING**, please know I won't be avai
 ⤷ **DO NOT** copy my maps once you encounter or come across my rp; unless given credit 
 and inspiration is very much appreciated.
 
-⤷ If i have blocked, muted, hide you, Please respect my decision and leave me be. I'm a open-minded person
-and choose not engage with others. sometimes healthiest thing to do is simply move on.
+⤷ If i have blocked, muted or hide you, Please respect my decision and leave me be. I'm a open-minded person, and i choose not engage to with certain people. Sometimes, the healthiest thing to do is simply move on.
 
 ⤷ If I somehow made you feel uncomfy, Please Let me know and I'll try to be respectful as possible
 
