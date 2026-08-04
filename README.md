@@ -1,4 +1,4 @@
-# @ 𝐀𝐧𝐢𝐦𝐚𝐥 𝐇𝐨𝐬𝐩𝐢𝐭𝐚𝐥 𝐑𝐏 !
+# @ 𝐀𝐧𝐢𝐦𝐚𝐥 𝐇𝐨𝐬𝐩𝐢𝐭𝐚𝐥 𝐑𝐏
 <div align="center">
   <img src="https://64.media.tumblr.com/0702874cb956b9d7f96cbaf16765e00d/2214b4372c2397e2-16/s2048x3072/0f306d5eb0a0ce296c8631f6f55a13f4f3c37ad4.pnj" alt="Profile Image" width="300" />
 </div>
@@ -26,13 +26,13 @@
 <div align="center">
 
 ⤷ Please do not ask for supp help if I am busy or AFK.
-Whether I'm labeled with **DNI / OFFTAB / HOSTING**, please know I won't be available/respond at the moment.
+Whether I'm labeled with **DNI / OFFTAB / HOSTING**, please know I won't be available at the moment unless i do so.
 
 ⤷ **DO NOT** copy my maps once you encounter or come across my rp; unless given credit 
 and inspiration is very much appreciated.
 
-⤷ If i have blocked, muted, hide you, Please leave me be. i'm a open minded person & and i do not
-want to engage with serious/risky situations
+⤷ If i have blocked, muted, hide you, Please respect my decision and leave me be. I'm a open-minded person
+and choose not engage with others. sometimes healthiest thing to do is simply move on.
 
 ⤷ If I somehow made you feel uncomfy, Please Let me know and I'll try to be respectful as possible
 
