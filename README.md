@@ -1,6 +1,13 @@
 <div align="center">
   <img src="https://64.media.tumblr.com/0702874cb956b9d7f96cbaf16765e00d/2214b4372c2397e2-16/s2048x3072/0f306d5eb0a0ce296c8631f6f55a13f4f3c37ad4.pnj" alt="Profile Image" width="300" />
 </div>
+
+<p align="center">
+  <a href="https://roseveil.atabook.org/?page=1">Ata</a> • 
+  <a href="https://www.roblox.com/share?code=2a3f0d2a8078574b9f882a4c033eac1e&type=Profile&source=ProfileShare&stamp=1785869519672">Roblox</a> • 
+  <a href="https://www.tiktok.com/@pipperonni_9?_r=1&_t=ZS-98bpY7L6Bq4">Tiktok</a>
+</p>
+
 <div align="center">
   <a href="https://git.io/typing-svg">
     <img src="https://readme-typing-svg.demolab.com?font=Fira+Code&weight=600&size=16&duration=2000&pause=1000&color=8B5A2B&center=true&width=430&lines=%22+Hey!+Did+you+get+the+photo%3F+%22" alt="Typing SVG" />
