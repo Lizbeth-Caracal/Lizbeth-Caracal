@@ -26,13 +26,15 @@
 <div align="center">
 
 ⤷ Please do not ask for supp help if I am busy or AFK.
-Whether I'm labeled with **DNI / OFFTAB / HOSTING**, please know I won't be available at the moment.
+Whether I'm labeled with **DNI / OFFTAB / HOSTING**, please know I won't be available/respond at the moment.
 
 ⤷ **DO NOT** copy my maps once you encounter or come across my rp; unless given credit 
 and inspiration is very much appreciated.
 
+⤷ If i have blocked, muted, hide you, Please leave me be. i'm a open minded person & and i do not
+want to engage with serious/risky situations
+
 ⤷ If I somehow made you feel uncomfy, Please Let me know and I'll try to be respectful as possible
-tone down my suggestive jokes
 
 <div align="center">
        ‎  【 𝐃 𝐍 𝐈 】
